@@ -1,7 +1,7 @@
 ## How ready you are to start new step in your career's Path?
 
-I'm ready to learn, adapt, and grow, and with this bootcamp i have been able to learn some 
-technical skills and building my foundation. 
+I'm 100% ready to learn, adapt, and grow, and with this bootcamp i have been able to learn some 
+technical skills and set my foundation. 
 
 ## Reflecting on My Bootcamp Journey
 
